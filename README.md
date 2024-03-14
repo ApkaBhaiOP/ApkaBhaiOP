@@ -1,8 +1,13 @@
-👋 Hi, I’m @HarryPotterHere
+Itz Harry Potter 🪄
 
-- 👀 I’m interested in logo making and some basic coding...
-- 🌱 I’m currently learning Nothing lol.
-- 💞️ Fun Fact: **I am a pro in gaming...**
-- 📫 You can reach me on Telegram by clicking **[Here](https://t.me/HarryPotterHere_Bot)**...
+↝ Kon hu mai? 
+Just an ordinary guy who joined TG for fun. Made some friends and a little bit of name for his noob skills 🫠
 
-<p><img align="center" src="https://github-readme-stats.vercel.app/api?username=HarryPotterHere&show_icons=true&theme=midnight-purple" alt="HarryPotterHere" /></p>
+↝ Kaisi Skills? 
+(currently all are paused)
+- 💻 Graphic Designing
+- 🖥 Editing 
+- 📸 Photography (Learning) 
+- 📃 Blogging 
+- 🕹 Gaming
+- 📕 Running kuch chote-mote Study channels
